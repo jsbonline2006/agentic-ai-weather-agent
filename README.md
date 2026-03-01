@@ -152,4 +152,8 @@ Wind: East 8-15 mph with gusts up to 20 mph
 **Monday-Wednesday:** Excellent conditions for outdoor activities with only slight rain chances
 **Throughout the week:** Light layers recommended for comfortable mornings and warm afternoons
 
+A huge thank you to **Ashish Prajapati, Prasad Rao and Parna Mehta** and all the volunteers for putting in so much effort to make this such a high-quality program. Your dedication truly shows! 🙌
+#AI #AgenticAI #AmazonBedrock #AWS #BESA #MachineLearning #ProfessionalGrowth #Learning
+
+
 
